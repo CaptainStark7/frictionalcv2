@@ -1,2 +1,2 @@
 # frictionalcv2
-1
+W-1
